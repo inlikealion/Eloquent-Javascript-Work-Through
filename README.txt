@@ -11,4 +11,4 @@ I am looking forward to sharpening my skills and expanding my horizons as a fron
 
 
 
-* I didn't intent that to be so "Princess Bride". Honest.
+* I didn't intend that to be so "Princess Bride". Honest.
